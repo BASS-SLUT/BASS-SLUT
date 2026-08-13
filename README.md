@@ -12,7 +12,7 @@
 </p>
 
 <p align="center">
-  no dni if you wanna interact just be patient w/ me :)<br><sup>pls be aware i will block if im uncomfortable.</sup>
+  no dni, i just block freely!! <br>if you wanna interact just be patient w/ me :)
 </p>
 
 <p align="center">
