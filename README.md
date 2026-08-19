@@ -8,7 +8,7 @@
 </p>
 
 <p align="center">
-  <b>HOWDY!!</b> <br>I'm BASS-SLUT, or Bugsy!<br><br>I'm TWENTY-ONE. I use SHE/XE/ANY!! <br><sup>(Including & encouraging NEOPRONOUNS!)</sup>
+  <b>HOWDY!!</b> <br>I'm BASS-SLUT, or Bugsy!<br><br>I'm TWENTY-TWO. I use SHE/XE/ANY!! <br><sup>(Including & encouraging NEOPRONOUNS!)</sup>
 </p>
 
 <p align="center">
